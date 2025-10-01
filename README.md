@@ -22,4 +22,6 @@ Begin your secure and anonymous browsing journey today via the official Black Op
 
 Remember, never trust links sent through unverified emails, social media, or unknown sources. Staying updated with the official link is your first line of defense against darknet fraud.
 
-Update:  18 September link is responsive and live
+
+
+Update:  Wednesday 01 October 2025
